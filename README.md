@@ -1,2 +1,1 @@
-# PrepCourse-Henry
-Mi primer reposito de soyhenry
+solo soy sergio y nose que decir mas mayonesa y ketchup
